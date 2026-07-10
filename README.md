@@ -1,4 +1,4 @@
-# Hi there, I'm Yulia! 👋
+# Hi, I'm Yulia! 👋
 
 ### Marketing & Product Analyst | E-commerce Growth & ROMI Optimization | Power BI & SQL
 
